@@ -1,1 +1,1 @@
-# Module_8_Challenge - updates
+##I had some trouble opening the challenge so i wasn't able to get to deliverable 3. I will have it in the next few days. thank you
